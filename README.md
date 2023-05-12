@@ -1,1 +1,1 @@
-# readme.md
+key=y6fLy8Sg0Bvs2uqDE5QrUiKvVIKL&email=gvdcgfhfhgfvhvhn@gmail.com&password=Cracked By Vidhayakji786&HWID=588C85E1078BFBFD00060FB1goezvmhqix
